@@ -9,12 +9,6 @@ gabriela medeiros
 
 
 
-
-
-
-
-
-
 ![dance-dancing](https://github.com/pqpgab/pqpgab/assets/143132917/30508f0e-4188-4559-a925-0a64ff041791)
 
 
